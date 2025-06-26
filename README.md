@@ -37,7 +37,7 @@
 
 点击访问：<a href="https://hl198.pages.dev/">黑料网为你提供今日黑料入口</a>
 
-点击访问：<a href="https://hj-63.pages.dev/">海角-444.run</a>
+点击访问：<a href="https://hj-63.pages.dev/">海角</a>
 
 点击访问：<a href="https://jinriheiliaodu-01.pages.dev/">今日黑料独家爆料网</a>
 
