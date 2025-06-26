@@ -35,7 +35,7 @@
 
 点击访问：<a href="https://hl128.pages.dev/">国内吃瓜爆料黑料社曝门</a>
 
-点击访问：<a href="https://hl198.pages.dev/">黑料社</a>
+点击访问：<a href="https://hl198.pages.dev/">黑料网为你提供今日黑料入口</a>
 
 点击访问：<a href="https://hj-63.pages.dev/">海角-444.run</a>
 
